@@ -1,1 +1,1 @@
-私は殺すことができない、私はすでに死んでいる
+Loyalty Above Money
